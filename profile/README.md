@@ -1,3 +1,5 @@
+How to invest in stocks
+
 Investing in stocks can be a rewarding way to grow your wealth, but it requires careful planning and a solid understanding of the market. In 2025, the stock market continues to evolve with new technologies, regulatory changes, and economic trends. This guide will walk you through the essential steps to invest in stocks effectively in 2025.
 
 ## 1. Educate Yourself
